@@ -4,5 +4,6 @@
 ▪️Cập nhật server cần 1 tí mạng. Dùng Wifi/4G hoặc app vpn khác để kích mạng.
 ▪️Phục vụ giải trí xem phim lướt wed...  Game hên xui :))
 ▪️Nhóm zalo: https://zalo.me/g/rdslei412
+
 💓Chúc Mọi Người Online Vui Vẻ💓
-❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉
+❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉❉
